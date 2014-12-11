@@ -1,1 +1,3 @@
-yo jorge valencia llegue temprano y nadie me ayudo 
+angel llego tarde 
+y le hicieron 
+todo el trabajo........
